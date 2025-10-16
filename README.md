@@ -1,5 +1,7 @@
 # AI_MALL_DOWNLOAD
 # 合作与代理加盟洽谈+Q2650933474
+蓝奏云网盘(密码：123)：https://wwtl.lanzoum.com/b00zy62e0d
+
 # 智码狗 AI 商城下载 - 新版本优化说明
 
 ## 🎯 对比老版本优化点
